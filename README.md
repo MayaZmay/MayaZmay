@@ -1,5 +1,5 @@
+![download jpeg](https://github.com/MayaZmay/MayaZmay/assets/133905672/0c503a48-3c0d-4c90-89a5-3b41aa31e587)
 - 👋 Hi, I’m @MayaZmay
-- 👀 I’m interested in ...art![20230508_220503](https://github.com/MayaZmay/MayaZmay/assets/133905672/661137af-9389-43dd-bc23-58c9494406c2)
 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
